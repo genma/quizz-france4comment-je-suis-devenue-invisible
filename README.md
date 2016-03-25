@@ -1,0 +1,1 @@
+En reconnaissance de la qualité du travail fait par l'équipe de journaliste, voici les captures d'écrans du quizz mis en place par France 4 dans le cadre de la diffusion de son reportage « Comment je suis devenu invisible ? » diffusé sur la chaîne le 28 mars, à 23h35. Quizz en ligne disponbile à cette adresse http://m.france4.fr/emissions/comment-je-suis-devenue-invisible.
